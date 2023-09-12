@@ -1,4 +1,4 @@
-# 👋 Hey there, I'm [YakuzaXBT]
+# 👋 Hey there, I'm YakuzaXBT
 
 ## 🌐 Web3 Developer | Blockchain Enthusiast | Smart Contract Security Advocate
 
